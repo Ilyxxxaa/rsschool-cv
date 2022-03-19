@@ -1,5 +1,5 @@
-# Ilya Kotsur
-**********
+## **Ilya Kotsur**
+
 ### **Contacts:** 
 * **Phone:** [+375298399374](tel:+375298399273)
 * **E-mail:** ilyxakotsur@gmail.com
